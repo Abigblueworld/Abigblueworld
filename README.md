@@ -5,6 +5,7 @@
 - My age is 16, meaning I'm a very young female programmer.
 - I have atypical autism, hypotonia, and anxiety disorder.
 - I only programs sometimes so I will be a little slow in making new Python/HTML creations... :/
+  <br> 
 Anyway, enjoy my work of arts!
 
 <!---
