@@ -1,4 +1,4 @@
-<div style="background-color: Black; width=500px; color: white"> Welcome to wonderland, fella! </div>
+<div style="background-color: black; width:500px; color: white"> Welcome to wonderland, fella! </div>
 
 <h2> A woman in programming? No way! xD </h2>
 
