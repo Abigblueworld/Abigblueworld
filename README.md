@@ -10,7 +10,7 @@
 - My race is white, as I am an American <br>
 - I am a female, as you probably already know <br>
 - I have brown hair and blue eyes in real life <br>
-- My age is 16, but I'm turning 17 in a few days <br>
+- My age is 17 <br>
 - I am Asexual, and sort of Pansexual <br>
 - I am not very liked, but I try to be the best I can <br>
 - I am an atheist, not a christian <br>
