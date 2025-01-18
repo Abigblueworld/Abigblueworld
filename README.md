@@ -11,11 +11,13 @@
 - I am a female, as you probably already know <br>
 - I have brown hair and blue eyes in real life <br>
 - My age is 17 <br>
-- I am Asexual, and sort of Pansexual <br>
-- I am not very liked, but I try to be the best I can <br>
-- I am an atheist, not a christian <br>
-- I go to 12th Grade because I gradulated 11th grade <br> 
-- I am a fan of Bluey, UglyDolls, SpongeBob, Furby, Teddy Ruxpin, Incoming Calls, Old smartphone bootups, Samsung, and LG <br>
+- I keep seeing this all over kids games in the Inspect Element
+- I love the round profile pictures, especially when they are moving and stuff for some reason.
+- I am Asexual and Pansexual <br>
+- I have a Teddy Ruxpin from 1985
+- I am currently questioning religion <br>
+- I go to 12th Grade  <br> 
+- I am a fan of Bluey, UglyDolls, SpongeBob, Furby, Teddy Ruxpin, Incoming Calls, Phone Call Errors, Amusement Parks, Chocolate, Samsung, and LG <br>
 - I literally talk way too much in real life, but I somewhat manage it. <br>
 - I use a HP laptop, Android Phone by BLU, an iPad (Sometimes), and a Kindle Fire (Sometimes) <br>
 - I watch and collect DVDs based off my interests, like cartoons and other good flicks <br>
