@@ -21,7 +21,8 @@
 - I literally talk way too much in real life, but I somewhat manage it. <br>
 - I use a HP laptop, Android Phone by BLU, an iPad (Sometimes), and a Kindle Fire (Sometimes) <br>
 - I watch and collect DVDs based off my interests, like cartoons and other good flicks <br>
-- I can program in HTML, CSS, and Python, and isn't really good at Javascript and C+ <br>
+- I can program in HTML, CSS, Python, and Web Javascript. <br>
+- I'm not that good at C+ or Normal Javascript <br>
 - I enjoy Nickelodeon, PBS Kids, Disney Junior, Cartoon Network, Nick Jr, Cartoonito (somewhat), Disney Channel, Food Network, MTV, and some TLC shows. However I do not enjoy news shows like NBC and ABC News, Comedy Central, Freeform, National Geographic and Animal Kingdom shows, since they're either bad or boring <br>
 - I do like Freeform, but only when movies are on it, however we don't watch cable anymore <br>
 <h4> Now, that's me!</h4>
