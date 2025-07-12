@@ -14,7 +14,8 @@
 - I keep seeing this all over kids games in the Inspect Element <br>
 - I love the round profile pictures, especially when they are moving and stuff for some reason. <br>
 - I am Asexual, lesbian, and Transromantic <br>
-- I have a Teddy Ruxpin from 1985 <br>
+- I have 2 Teddy Ruxpins (one from my childhood and one from now) from 1985 <br>
+- I'm a toy collector with a bunch of toys in their room ranging from vintage to modern <br>
 - I am currently questioning my religion <br>
 - I graulated high school  <br> 
 - I am a fan of UglyDolls, SpongeBob, Furby, Teddy Ruxpin, Incoming Calls, Phone Call Errors, Playmates dolls, Singing fish, Schnuffel, Cookie Run, Amusement Parks, Chocolate, Samsung, and LG <br>
