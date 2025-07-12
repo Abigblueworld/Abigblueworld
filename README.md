@@ -22,7 +22,8 @@
 - I literally talk way too much in real life, but I somewhat manage it. <br>
 - I use a HP laptop and a Samsung Galaxy S25 phone, <br>
 - My profile picture is an edit of Bud from the 2000s game "Stupid Invaders", as I like that game currently because of its short cutscenes.
-- I watch and collect DVDs based off my interests, like cartoons and other good flicks <br>
+- I nowadays sometimes watch and collect DVDs based off my interests; like cartoons and other good flicks <br>
+- I am sometimes mistaken as a kid because of my odd special interests and my looks. <br>
 - I can program in HTML, CSS, Python, and Web Javascript. <br>
 - I'm not that good at C+ or Normal Javascript <br>
 - I sometimes enjoy watching Nickelodeon, PBS Kids, Disney Junior, Cartoon Network, Nick Jr, Cartoonito (somewhat), Disney Channel, Food Network, MTV, and some TLC shows. However I do not enjoy news shows like NBC and ABC News, Comedy Central, Freeform, National Geographic and Animal Kingdom shows, since they're either bad or boring <br>
