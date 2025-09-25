@@ -20,8 +20,8 @@
 - I graulated high school  <br> 
 - I am a fan of UglyDolls, SpongeBob, Furby, Teddy Ruxpin, Incoming Calls, Phone Call Errors, Playmates dolls, Singing fish, Schnuffel, Cookie Run, Amusement Parks, Chocolate, Samsung, and LG <br>
 - I literally talk way too much in real life, but I somewhat manage it. <br>
-- I use a HP laptop and a Samsung Galaxy S25 phone, <br>
-- My profile picture is an edit of Bud from the 2000s game "Stupid Invaders", as I like that game currently because of its short cutscenes.
+- I use a Samsung Galaxy S25 phone currently <br>
+- My profile picture is a crop of a rounded image of the 2 main characters of Rugrats; which are Tommy Picklesand Chuckie Finster.
 - I nowadays sometimes watch and collect DVDs based off my interests; like cartoons and other good flicks <br>
 - I am sometimes mistaken as a kid because of my odd special interests and my looks. <br>
 - I can program in HTML, CSS, Python, and Web Javascript. <br>
