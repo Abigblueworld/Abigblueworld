@@ -8,8 +8,7 @@
 <h3> Things about me:</h3> <br>
 - I'm autistic, as I have high-fuctioning autism aka PDDNOS <br>
 - My race is white, as I am an American <br>
-- I am a female, as you probably already know <br>
-- I have straight brown hair and blue eyes in real life <br>
+- I am a female since birth <br>
 - My age is 18 <br>
 - I kept seeing this site all over kids games in the Inspect Element <br>
 - I am Asexual <br>
